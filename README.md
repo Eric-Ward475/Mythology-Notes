@@ -42,53 +42,63 @@
 - The Primordial Gods and Fates are considered greater than him
 - The Eagle, Aegis and lightning bolt are associated with him
 - The Aegis is a type of shield
+
 **Hera**
 - Wife & Sister of Zeus
 - Protector of married women
 - Relationship between her and Zeus: Problematic as Zeus kept having kids with their kids (wtf bro)
+
 **Poseidon**
 - God of the seas, water, storms, hurricanes, earthquakes and horses
 - A son of Cronus and Rhea
 - Brother of Zeus and Hades
 - Had many lovers, but is married to the Nereid Amphirite
-- His symblos were the trident, horse, bull and dolphin
+- His symbols were the trident, horse, bull and dolphin
+
 **Demeter**
-- Goddess of harvest, fertility, faming/agriculture, nature and the seasons
+- Goddess of harvest, fertility, farming/agriculture, nature and the seasons
 - A daughter of Cronus and Rhea
 - One of Zeus and Poseidon's lovers
-- Mother of Persophone, Despoine and Arion
+- Mother of Persephone, Despoine and Arion
+
 **Apollo**
 - God of Sun, light, prophecy, philosophy, archery, truth, inspiration, poetry, music, arts, manly beauty, medicine, healing and plague
 - A lie never fell from his lips
 - The son of Zeus and Leto
 - Twin brother of Artemis
 - His symbols were the bow and arrow, lyre, raven, swan and wolf
+
 **Artemis**
 - Goddess of the hunt, wilderness, virginity, the Moon, archery, childbirth protection and plague
 - The daughter of Zeus and Leto
 - Twin sister to Apollo
 - Symbols were the Moon, horse, deer, hound, she-bear, snake, cypress tree and bow and arrow
+
 **Ares**
 - God of war, violence, bloodshed and manly virtues
 - Son of Zeus and Hera
 - All other gods despised him, except for Aphrodite
 - The boar, serpent, dog, vulture, spear and shield were his symbols
+
 **Athena**
 - Goddess of wisdon, handicraft and warfare
 - The daughter of Zeus alone (rose from his head fully grown and in full battle armor)
 - Zeus' favorite child
 - Symbols were the owl and olive tree
+
 **Hephaestus**
 - God of the forge, craftsmanship, invention, fire and volcanoes
 - Master blacksmith
 - Armorer/craftsman of the gods
 - The son of Hera, either by Zeus or through Asexual reproduction (revenge for Zeus being with other women)
 - Symbols include fire, anvil, axe, donkey, hammer, tongs and quail
+
 **Aphrodite**
 - Goddess of love, pleasure, passion, procreation, fertility, beauty and desire
 - The daughter of Zeus and the Oceanid (or Titaness) Dione, or possibly born from the sea foam after Uranus' blood dripped into the sea after being castrated by Cronus, who then threw his fathers genitals into the sea (freaky ahh greeks)
 - Married to Hephaestus, although she had many adulterous affairs, most notably with Ares
 - The dove, bird, apple, bee, swan, myrtle and rose represent her
+
 **Hermes**
 - God of travel, commerce, communication, borders, diplomacy, thieves and games
 - The guide of deal souls to the underworld
@@ -96,7 +106,8 @@
 - Son of Zeus and the nymph Maia
 - Second youngest Olympian
 - Symbols include the caduceus, winged sandals and cap, stork, and tortoise
+
 **Hestia**
 - Goddess of the hearth, fire and of the right ordering of domesticity and the family
 - Sister to Zeus, Poseidon, Hades, Demeter and Hera
-- First child of Chronus and Rhea
+- First child of Cronus and Rhea
